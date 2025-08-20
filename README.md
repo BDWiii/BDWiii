@@ -2,7 +2,7 @@ Grap a coffee, take a look
 
 the good stuff is pinned below ⬇️
 
-🔗 [LinkedIn](https://www.linkedin.com/in/mohammed-badawy-9b0b482a6) || ✉️ [Email](badawiii.676@gmail.com)
+🔗 [LinkedIn](https://www.linkedin.com/in/mohamed-badawi-9b0b482a6/) || ✉️ [Email](badawiii.676@gmail.com)
 
 
 <!--
